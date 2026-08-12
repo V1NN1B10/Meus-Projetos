@@ -1,2 +1,2 @@
 # Meus Projetos
-um pouco do meu trabalho
+Um pouco do meu dos meus projetos
